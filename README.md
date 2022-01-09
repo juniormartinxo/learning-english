@@ -1,2 +1,2 @@
-# learning-english
-Repo for learning english
+# Learning English
+Repo for learn english
