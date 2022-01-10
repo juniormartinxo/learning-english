@@ -1,6 +1,6 @@
 # El páramo (O Páramo)
 <p><strong>Stream:</strong> Netflix</p>
-<p>Lucia and her son live far from society, in an flat area where there is almost no life. The samll family unit made up of mother and son almost no receives visitors and your objetive are develop a peaceful existence.</p>
+<p>Lucia and her son live far from society, in an flat area where there is almost no life. The small family unit made up of mother and son almost no receives visitors and your objetive are develop a peaceful existence.</p>
 
 ### Frases
 - Give me back the guts you took from me!<br/>
